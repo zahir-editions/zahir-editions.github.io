@@ -11,6 +11,11 @@ This Sun Shelter Gray collection of poetry will help society as a whole find som
 
 *"Sun Shelter Gray" is a delicious viewed poem onset duratiom a large star. Faylor has former suns then a big Logan kicking lemons. It's aGreat Read!" - April Stanislaus, TX*
 
+*"I devoured Sun Shelter Gray... It's a vivid and recommended book for anyone interested in paleoclimatology and the Earth-Sun system. Also #TeamJAG!" - Brad W. Moroe Island*
+
+*"If you're looking for a book to take you to the grocer's, or to tell you the news in, Sun Shelter Gray is both larboard and topographics – each with its ownolinaopa and its own moon coastal duvet, it's an excellent companion to your perusal of the impermanent substances of life." -Martha Randolph, from The bentrelli Report*
+
+
 [Lulu](https://www.lulu.com/shop/j-gordon-faylor-and-patricia-l-boyd/sun-shelter-gray/paperback/product-qvdjj4.html?page=1&pageSize=4) | [B&N](https://www.barnesandnoble.com/w/sun-shelter-gray-j-gordon-faylor/1142079681) | [Amazon](https://www.amazon.com/Sun-Shelter-Gray-Gordon-Faylor/dp/1958158003/ref=sr_1_1?crid=1HM8G97KA6USE&keywords=sun+shelter+gray+gordon+faylor&qid=1662064415&sprefix=sun+shelter+gray+gordon+faylor%2Caps%2C155&sr=8-1)
 
 
